@@ -9,14 +9,14 @@
 - **Series**: *The Empyrean* (Book 3)  
 - **Plot Summary**: Violet must find an army and uncover powerful magic to combat looming threats. The narrative promises high stakes and emotional depth, with Violet facing challenges that will test her strength and resolve.  
 
+[Want to read?](https://www.amazon.in/Onyx-Storm-DISCOVER-FOLLOW-UP-PHENOMENONS/dp/0349437068)  
+[Shop this series](https://www.amazon.in/Onyx-Storm-DISCOVER-FOLLOW-UP-PHENOMENONS/dp/0349437068)
+
 ## Who are the main characters in *Onyx Storm*?
-The main characters in *Onyx Storm*, the upcoming third book in Rebecca Yarros' *The Empyrean* series, include Violet Sorrengail, her allies, and her dragons, as well as the enemies she must confront.
+The main characters in *Onyx Storm*, the upcoming third book in Rebecca Yarros' *The Empyrean* series, include Violet Sorrengail and her allies and enemies, including her dragons.
 
 ## What are the major challenges Violet faces in *Onyx Storm*?
-In *Onyx Storm*, Violet Sorrengail faces several significant challenges, including:  
-- Seeking allies in dangerous and uncharted territories.  
-- Navigating treachery and uncovering long-buried secrets.  
-- Protecting her dragons, her loved ones, and her homeland from ever-looming threats.  
+In *Onyx Storm*, Violet Sorrengail faces several significant challenges that test her abilities, relationships, and inner strength.
 
 ## How many pages will be in *Onyx Storm*?
 *Onyx Storm* is expected to have **544 pages** in its hardcover edition.
