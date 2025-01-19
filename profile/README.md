@@ -9,12 +9,6 @@
 - **Series**: *The Empyrean* (Book 3)  
 - **Plot Summary**: Violet must find an army and uncover powerful magic to combat looming threats. The narrative promises high stakes and emotional depth, with Violet facing challenges that will test her strength and resolve.  
 
-### Want to Read  
-Looking forward to the release of *Onyx Storm*? Add it to your reading list!  
-
-### Shop This Series  
-Explore *The Empyrean* series and discover the thrilling world Rebecca Yarros has created.
-
 ## Who are the main characters in *Onyx Storm*?
 The main characters in *Onyx Storm*, the upcoming third book in Rebecca Yarros' *The Empyrean* series, include Violet Sorrengail, her allies, and her dragons, as well as the enemies she must confront.
 
